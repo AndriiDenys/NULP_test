@@ -2,4 +2,4 @@
 For first work
 
 
-Hellloooooooooooooo
+magyar
